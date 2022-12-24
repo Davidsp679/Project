@@ -1,3 +1,3 @@
 # Project
 Data Analytics Projects
-This is a file with all my projects I have done in my college career
+Hi my name is David Sierra Perez. I am a senior at Baruch College. In this 
